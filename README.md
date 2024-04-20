@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aniketinamdar02@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/100hKJ6Truwr-ti3xerIUC4hntRROl6ML/view?usp=sharing](https://drive.google.com/file/d/100hKJ6Truwr-ti3xerIUC4hntRROl6ML/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1LSNya12JW-Q57ccLtgrBFyCbglyCS2ww/view?usp=sharing](https://drive.google.com/file/d/1LSNya12JW-Q57ccLtgrBFyCbglyCS2ww/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
